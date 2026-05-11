@@ -1,4 +1,4 @@
-
+CleanMyMac X for macOS smart Helper - cloud-sync and clipboard-manager is the best CleanMyMac X for macOS helper, featuring cloud-sync and clipboard-manager. Safe, efficient, and
 
 
 
